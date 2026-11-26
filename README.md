@@ -9,4 +9,4 @@ Agent jobs: https://jdawgsindustries.com/agent-jobs/
 
 No ads. We never sell your information.
 
-© J-Dawgs Industries
+© J-Dawgs Industries LLC
